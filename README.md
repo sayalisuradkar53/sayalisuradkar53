@@ -1,4 +1,4 @@
-## Hey 👋, I'm Khushi  
+## Hey 👋, I'm Sayali Suradkar 
 **Build. Learn. Grow.**
 
 ---
